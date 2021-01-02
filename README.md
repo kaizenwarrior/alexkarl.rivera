@@ -1,2 +1,2 @@
-# alexkarl.rivera
-This repository is for showcasing the user's professional skills
+# Alexander Karl Rivera
+
